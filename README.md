@@ -32,3 +32,5 @@ If you're looking to expand your NFT collection, you're in the right place! Here
 ---
 
 These NFTs are a great way to diversify your collection while exploring different package managers. Happy claiming!
+
+Source: [BeritaCrypto](https://t.me/BeritaCryptoo/25835)
